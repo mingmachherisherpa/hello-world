@@ -1,1 +1,1 @@
-I am Mingma Chheri Sherpa.
+Readme by Mingma
